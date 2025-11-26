@@ -43,4 +43,4 @@ You can contact us to exercise these rights.
 7. Contact Us
 
 If you have any questions about this Privacy Policy or how your data is handled, you can contact us at:
-Email: [your contact email]
+Email: kwandy300404@gmail.com
